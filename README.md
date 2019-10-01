@@ -9,7 +9,7 @@
 ### [3xhs.com](http://3xhs.com)
 ### [xhs520.vip](http://xhs520.vip)<br>
 
-# 苹果APP备用下载地址
+## 苹果APP备用下载地址
 ### 苹果APP异常无法打开，可在此网址重新下载安装
 ### [ios.xhs520.vip](http://ios.xhs520.vip)<br>
 
