@@ -4,10 +4,14 @@
 请立刻收藏保存本页！！<br>
 最新的平台回家页面 https://github.com/xhshu/xhs      <br>
 
-# 最新苹果安卓下载地址2019年9月19日更新
+# 最新安卓/苹果下载地址
 ### [0xhs.com](http://0xhs.com)
 ### [3xhs.com](http://3xhs.com)
 ### [xhs520.vip](http://xhs520.vip)<br>
+
+# 苹果APP备用下载地址
+### 苹果APP异常无法打开，可在此网址重新下载安装
+### [ios.xhs520.vip](http://ios.xhs520.vip)<br>
 
 ### 全平台直播规则
 1.平台允许色情直播内容，如在特别板块直播请额外遵守直播板块规则。<br>
